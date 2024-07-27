@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @com-50ph1a
+- 👀 I’m interested in creating roblox UIs and development overall
+- 🌱 I’m currently learning how to create websites
+- 📫 How to reach me: Discord: .50ph1a Email: m.sophia@email.com
+- 😄 Pronouns: She/Her
